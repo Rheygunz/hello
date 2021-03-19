@@ -1,3 +1,3 @@
 # hello-world
 
-I Love 🍕: 👯‍♀️: and 🍺: 
+I Love 🍕 👯‍♀️ and 🍺
